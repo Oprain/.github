@@ -1,2 +1,2 @@
 ## Hi there
-We are Oprain LLC, WE SERVE HUMAN.
+We are Oprain Foundation, WE SERVE HUMAN.
